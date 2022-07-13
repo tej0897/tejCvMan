@@ -1,1 +1,1 @@
-# tejas'Cv website which is under work.
+# tejas'CV (work under progress)
